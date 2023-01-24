@@ -1,4 +1,4 @@
-### Hi! 👋 I'm Adit.
+### Hi! 👋 I'm Hatta.
 
 I'm currently a student of <a href="https://ittelkom-pwt.ac.id/">Institute Technology Telkom Purwokerto </a> majoring in Informatics Engineering.
 
